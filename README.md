@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @31amartrivedi
+- 👀 I’m interested in ...Gaming, R&D
+- 🌱 I’m currently learning ... Unreal
+- 📫 How to reach me ...triamar@gmail.com
